@@ -1,2 +1,2 @@
 # METYARIT
-<p> https://1ai1.neocities.org/</p>
+<a> https://1ai1.neocities.org/</a>
