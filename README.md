@@ -1,2 +1,2 @@
 # METYARIT
-https://1ai1.github.io/METYARIT/
+<p> https://1ai1.neocities.org/</p>
