@@ -1,2 +1,2 @@
 # METYARIT
-[a limk] (https://1ai1.neocities.org/)
+[a link] (https://1ai1.neocities.org/)
